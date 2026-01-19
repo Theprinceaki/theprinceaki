@@ -1,5 +1,4 @@
 ## Hey there 👋
-
 I’m Malik Rogers a United States Air Force Veteran. Initiative driven and an excellent Communicator who is extremely Adaptive. I enjoy solving tough challenges head on.
 
 <!--
