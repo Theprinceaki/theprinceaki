@@ -1,5 +1,7 @@
 ## Hey there 👋
 
+I’m Malik Rogers a United States Air Force Veteran. Initiative driven and an excellent Communicator who is extremely Adaptive. I enjoy solving tough challenges head on.
+
 <!--
 **Theprinceaki/theprinceaki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
