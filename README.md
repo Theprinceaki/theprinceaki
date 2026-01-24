@@ -1,5 +1,6 @@
-## Malik Rogers 
-**`Full Stack Developer, Web Designer`**
+## Malik Rogers
+
+**`Full Stack Developer, Web Designer Data Analyst`**
 
 United States Air Force Veteran. Initiative driven and an excellent Communicator who is extremely Adaptive. I enjoy solving tough challenges head on.
 
